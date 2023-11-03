@@ -1,0 +1,12 @@
+- 👋 Hi, I’m @IMKINDAFD AND I NEED HELP REALLY BADLY, ALL MY ELECTRONICDEVICES HAVEBEEN HACKED,ALL MY PASSWORDS CHANGED AND THERE IS ONE PARTICULAR GMAIL ADDRESS THAT IS CONNECTED TO ALMOST EVERYTHING AND I CANT GET IT BACK
+- I WOULD LIKE BE BEYONCE GRATEFUL IT SOMEONE WOULD HELP ME!!!! I HAD TO MAKE A NEW GITHUB ACCOUNT BRCAUSE THEY CHANGED THE PASSWPRD  IM USUALLY CODE4STFU
+- 
+- 👀 I’m interested in ...LEARNING, CROSSFIT, RUNNING
+- 🌱 I’m currently learning ...ABOUT TECHNOLOGY
+- 💞️ I’m looking to collaborate on ...AN APP
+- 📫 How to reach me ...REXDINOBEST@AOL.COM
+
+<!---
+IMKINDAFD/IMKINDAFD is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+You can click the Preview link to take a look at your changes.
+--->
